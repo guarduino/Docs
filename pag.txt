@@ -1,2 +1,2 @@
 https://guarduino.github.io/Docs/Prueba.html
-https://guarduino.github.io/Docs/plymouthbrethren_Dones (1).md
+https://guarduino.github.io/Docs/plymouthbrethren_Dones.md
