@@ -1,7 +1,7 @@
 ## TEOLOGIA POSTERIOR
 *plymouthbrethren*.  
 ## Un estudio de los dones espirituales
-Por Daniel C. Snaddon.  
+ 
 Enlaces de navegación del libro Un estudio de los dones espirituales.  
  1 Corintios 12 .  
  *Descripción de los dones espirituales permanentes*.  
