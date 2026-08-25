@@ -82,10 +82,10 @@ El corazón del evangelio era que Cristo murió para salvar a los pecadores.
 La resurrección era una verdad indispensable de la fe cristiana.
 
 Hechos 2:24-32, Hechos 4:33, 1 Corintios 15:12-20
-![](_page_8_Picture_20.jpeg)![](_page_8_Picture_20.jpeg)![](_page_8_Picture_20.jpeg)
+
 Sin la resurrección, la fe sería vana.
 
-## 4\_La salvación por gracia mediante la fe
+### 4\_La salvación por gracia mediante la fe
 
 Los apóstoles enseñaban que nadie puede salvarse por sus obras.
 
@@ -93,7 +93,7 @@ Los apóstoles enseñaban que nadie puede salvarse por sus obras.
 
 "Por gracia sois salvos por medio de la fe." (Efesios 2:8-9)
 
-# 5\_El arrepentimiento y la fe
+### 5\_El arrepentimiento y la fe
 
 La respuesta al evangelio debía ser el arrepentimiento y la confianza en Cristo.
 
@@ -101,7 +101,7 @@ La respuesta al evangelio debía ser el arrepentimiento y la confianza en Cristo
 
 "Arrepentimiento para con Dios, y de la fe en nuestro Señor Jesucristo." (Hechos 20:21)
 
-# 6\_El nuevo nacimiento y la obra del Espíritu Santo
+### 6\_El nuevo nacimiento y la obra del Espíritu Santo
 
 La conversión implica una nueva vida producida por el Espíritu.
 
@@ -129,13 +129,13 @@ Estas fueron las dos ordenanzas instituidas por Cristo para su iglesia.
 
 Mateo 28:19, Hechos 2:41, 1 Corintios 11:23-26
 
-## 10\_La disciplina y la pureza de la iglesia
+### 10\_La disciplina y la pureza de la iglesia
 
 Los apóstoles enseñaban a ![](_page_8_Picture_20.jpeg)corregir el pecado público y proteger la santidad de la congregación.
 
 Mateo 18:15-17, 1 Corintios 5, Tito 3:10
 
-# 11\_La defensa de la sana doctrina
+### 11\_La defensa de la sana doctrina
 
 Una iglesia fiel debía rechazar las falsas enseñanzas.
 
@@ -155,7 +155,7 @@ Cristo volverá para juzgar a vivos y muertos.
 
 Hechos 17:31, 2 Corintios 5:10, Apocalipsis 20:11-15
 
-# PREDICAR EL EVANGELIO VERDADERO
+## PREDICAR EL EVANGELIO VERDADERO
 
 El centro del mensaje apostólico es la muerte y resurrección de Cristo.
 
@@ -163,7 +163,7 @@ El centro del mensaje apostólico es la muerte y resurrección de Cristo.
 
 Cualquier iglesia que sustituya este mensaje por prosperidad, autoestima o experiencias personales ha dejado el fundamento apostólico.
 
-# Llamar al arrepentimiento y a la fe
+### Llamar al arrepentimiento y a la fe
 
 Jesús comenzó su ministerio diciendo:
 
@@ -187,15 +187,15 @@ La misión de la iglesia no es solo atraer personas, sino formar discípulos obe
 
 Por tanto, yo os protesto en el día de hoy, que estoy limpio de la sangre de todos; porque no he rehuido anunciaros todo el consejo de Dios. Por tanto, mirad por vosotros, y por todo el rebaño en que el Espíritu Santo os ha puesto por obispos, para apacentar la iglesia del Señor, la cual él ganó por su propia sangre.
 
-# ¿CÓMO DEBEN SER LOS CULTOS DE UNA IGLESIA VERDADERA?
+### ¿CÓMO DEBEN SER LOS CULTOS DE UNA IGLESIA VERDADERA?
 
 La Biblia no establece una liturgia rígida o un orden invariable para cada reunión de la iglesia. Sin embargo, sí presenta principios claros que deben caracterizar el culto cristiano. El propósito principal de la reunión no es entretener a las personas ni satisfacer sus preferencias, SINO GLORIFICAR A DIOS Y EDIFICAR A SU PUEBLO.
 
-## 1. Cristo debe ser el centro del culto
+### 1. Cristo debe ser el centro del culto
 
 Toda reunión de la iglesia debe exaltar la persona y la obra de Jesucristo. Pablo escribió: "Porque no me propuse saber entre vosotros cosa alguna sino a Jesucristo, y a éste crucificado." (1 Corintios 2:2) Cuando el hombre, el pastor, las emociones o las experiencias ocupan el centro del culto, Cristo deja de ocupar el lugar que le corresponde.
 
-# 2. La predicación de la Palabra debe ocupar un lugar principal
+### 2. La predicación de la Palabra debe ocupar un lugar principal
 
 La enseñanza de las Escrituras fue el eje de las reuniones de la iglesia primitiva.
 
@@ -217,7 +217,7 @@ Las reuniones deben incluir momentos de adoración y dependencia de Dios mediant
 
 Oraré con el espíritu, pero oraré también con el entendimiento. (1 cor. 14:15)
 
-## 4. Debe haber alabanza con entendimiento
+### 4. Debe haber alabanza con entendimiento
 
 Los creyentes son llamados a cantar para la gloria de Dios.
 
@@ -227,7 +227,7 @@ Las alabanzas deben estar llenas de verdad bíblica y dirigir la atención hacia
 
 cantaré con el espíritu, pero cantaré también con el entendimiento. (1 cor. 14:15)
 
-# 5. Debe celebrarse la Cena del Señor conforme a las Escrituras
+### 5. Debe celebrarse la Cena del Señor conforme a las Escrituras
 
 La iglesia primitiva perseveraba en el partimiento del pan.
 
@@ -241,7 +241,7 @@ La iglesia no es un grupo de espectadores, sino una familia espiritual.
 
 "Todos los que habían creído estaban juntos, y tenían en común todas las cosas." (Hechos 2:44) El culto incluye el cuidado mutuo, el servicio y la edificación unos de otros.
 
-# 7. Todo debe hacerse con orden
+### 7. Todo debe hacerse con orden
 
 Pues Dios no es Dios de confusión, sino de paz. Como en todas las iglesias de los santos. (1 Corintios 14:33)
 
@@ -249,13 +249,13 @@ Pues Dios no es Dios de confusión, sino de paz. Como en todas las iglesias de l
 
 Las reuniones deben reflejar reverencia, respeto y organización, evitando el caos y el desorden.
 
-## 8. Todo debe hacerse para edificación
+### 8. Todo debe hacerse para edificación
 
 Pablo establece un principio general para cualquier participación en la reunión:
 
 "¿Qué hay, pues, hermanos? Cuando os reunís, cada uno de vosotros tiene salmo, tiene doctrina, tiene lengua, tiene revelación, tiene interpretación. Hágase todo para edificación." (1 Corintios 14:26)
 
-# 9. Debe haber reverencia y temor de Dios
+### 9. Debe haber reverencia y temor de Dios
 
 La adoración bíblica está marcada por el reconocimiento de la santidad de Dios.
 
@@ -272,7 +272,7 @@ La iglesia primitiva comprendía la santidad de Dios, y ese reconocimiento produ
 
 La reverencia no excluye el gozo, sino que lo acompaña con una actitud de humildad, obediencia y profundo respeto delante de la presencia del Señor.
 
-# 10. Todo debe hacerse para la gloria de Dios
+### 10. Todo debe hacerse para la gloria de Dios
 
 Este es el principio supremo que gobierna toda reunión cristiana.
 
@@ -293,7 +293,7 @@ El Nuevo Testamento muestra que los cultos de una iglesia verdadera están carac
 
 Por lo tanto, una iglesia verdadera procura que su predicación, su música, sus oraciones, sus ofrendas, sus ministerios y toda su vida congregacional tengan un único propósito: que Dios sea exaltado y que Cristo reciba toda la gloria que le pertenece. Cuando el protagonismo se desplaza hacia el hombre, los líderes o el espectáculo, el culto pierde su enfoque bíblico y deja de reflejar el propósito para el cual existe la iglesia.
 
-# Cristo es la cabeza de la iglesia
+### Cristo es la cabeza de la iglesia
 
 La primera y más importante verdad es que la iglesia tiene un solo Señor.
 
@@ -320,7 +320,7 @@ En el Nuevo Testamento, las iglesias eran guiadas por ancianos (también llamado
 
 Su responsabilidad principal es enseñar la sana doctrina, cuidar de la iglesia y velar por ella.
 
-# La iglesia cuenta con diáconos para el servicio
+### La iglesia cuenta con diáconos para el servicio
 
 Además de los ancianos, el Nuevo Testamento presenta el ministerio de los diáconos, encargados de servir en necesidades prácticas de la congregación.
 
@@ -328,13 +328,13 @@ Además de los ancianos, el Nuevo Testamento presenta el ministerio de los diác
 
 Su servicio permite que los pastores se dediquen especialmente a la oración y al ministerio de la Palabra.
 
-# Todos los creyentes forman un solo cuerpo
+### Todos los creyentes forman un solo cuerpo
 
 Cada miembro tiene una función distinta, pero todos son necesarios.
 
 "Vosotros, pues, sois el cuerpo de Cristo, y miembros cada uno en particular." (1 Corintios 12:27) Dios concede diversos dones para la edificación de la iglesia, de modo que cada creyente participe en el servicio.
 
-# La autoridad final es la Palabra de Dios
+### La autoridad final es la Palabra de Dios
 
 Los líderes no gobiernan según sus propias opiniones, sino sometidos a las Escrituras.
 
@@ -342,9 +342,9 @@ Los líderes no gobiernan según sus propias opiniones, sino sometidos a las Esc
 
 Una iglesia verdadera reconoce que la Biblia es la máxima autoridad para la fe y la práctica.
 
-# ¿PORQUE LA IGLESIA ACTUAL NO ADMITE HOY APÓSTOLES A PARTE DE LOS QUE SE MENCIONAN EN LAS ESCRITURAS?
+## ¿PORQUE LA IGLESIA ACTUAL NO ADMITE HOY APÓSTOLES A PARTE DE LOS QUE SE MENCIONAN EN LAS ESCRITURAS?
 
-# Los apóstoles fueron un oficio único e irrepetible
+## Los apóstoles fueron un oficio único e irrepetible
 
 Los apóstoles tuvieron una función fundacional en la iglesia. Fueron escogidos personalmente por Jesucristo y fueron testigos de su resurrección.
 
@@ -368,13 +368,13 @@ Además, la iglesia fue edificada una sola vez sobre ese fundamento:
 
 Un fundamento se coloca una vez; no se vuelve a poner en cada generación.
 
-# ¿Quién fue el último apóstol?
+### ¿Quién fue el último apóstol?
 
 Los doce apóstoles fueron elegidos por Cristo durante su ministerio terrenal. Tras la muerte de Judas, Matías fue incorporado al grupo (Hechos 1:26). Más tarde, Jesucristo llamó de manera extraordinaria a Pablo para ser "apóstol a los gentiles" (Romanos 11:13).
 
 Desde una perspectiva cesacionista, Pablo fue el último apóstol comisionado directamente por el Señor resucitado, y con la muerte de los apóstoles terminó ese oficio fundacional.
 
-# ¿PORQUE LA IGLESIA ACTUAL NO ADMITE HOY PROFETAS A PARTE DE LOS QUE SE MENCIONAN EN LAS ESCRITURAS?
+### ¿PORQUE LA IGLESIA ACTUAL NO ADMITE HOY PROFETAS A PARTE DE LOS QUE SE MENCIONAN EN LAS ESCRITURAS?
 
 Juan el bautista fue el último y el más grande de los profetas que anunciaron la venida del Mesías.
 
@@ -392,7 +392,7 @@ Estas palabras indican que con Juan termina la etapa de la revelación del Antig
 
 Una vez colocado el fundamento de la iglesia y completada la revelación inspirada, ese oficio dejó de ser necesario.
 
-## Los profetas del Nuevo Testamento también tuvieron una función fundacional
+### Los profetas del Nuevo Testamento también tuvieron una función fundacional
 
 Antes de completarse el canon del Nuevo Testamento, Dios utilizó profetas para comunicar revelación a la iglesia. Sin embargo, la fe cristiana ya ha sido entregada plenamente. "Que contendáis ardientemente por la fe que ha sido una vez dada a los santos." (Judas 3) Y la Escritura declara:
 
@@ -402,7 +402,7 @@ Si la revelación bíblica es suficiente, no se necesitan nuevos profetas que a�
 
 Desde esta perspectiva, los últimos profetas fueron aquellos que ejercieron ese ministerio durante la era apostólica, como Agabo (Hechos 11:28; 21:10-11) y otros mencionados en el Nuevo Testamento. Al concluir la revelación apostólica y completarse el canon bíblico, cesó ese oficio.
 
-# ¿POR QUÉ LA IGLESIA NO RECONOCE PASTORAS?
+### ¿POR QUÉ LA IGLESIA NO RECONOCE PASTORAS?
 
 Los ancianos de Éfeso, a quienes Pablo encarga apacentar la iglesia, eran hombres.
 
@@ -434,7 +434,7 @@ Esto no implica que las mujeres tengan un papel secundario. El Nuevo Testamento 
 
 Jesús tuvo numerosas discípulas fieles, como María Magdalena, Marta, María de Betania y otras mujeres que lo siguieron y sostuvieron su ministerio. Sin embargo, cuando escogió a los doce apóstoles, eligió exclusivamente a hombres.
 
-# El ejemplo apostólico
+### El ejemplo apostólico
 
 En el Nuevo Testamento aparecen mujeres destacadas como:
 
@@ -443,35 +443,35 @@ En el Nuevo Testamento aparecen mujeres destacadas como:
 - Lidia, colaboradora en la expansión del evangelio (Hechos 16).
 - Las ancianas, llamadas a enseñar a las mujeres más jóvenes (Tito 2:3-5).
 
-Sin embargo, no se menciona a ninguna mujer ejerciendo el oficio de anciana, obispa o pastora de una iglesia local.
+Sin embargo, no se menciona a ninguna mujer ejerciendo el oficio de anciana, obispa o pastora de una iglesia local.#
 
-# ¿POR QUÉ UN PASTOR NO DEBE SER UN JOVEN INEXPERTO O SIN CONOCIMIENTO BÍBLICO?
+## ¿POR QUÉ UN PASTOR NO DEBE SER UN JOVEN INEXPERTO O SIN CONOCIMIENTO BÍBLICO?
 
 El liderazgo de la iglesia es una responsabilidad de gran importancia. Un pastor no solo cuida de las almas, sino que debe enseñar la sana doctrina, refutar el error y dar ejemplo a la congregación. Por ello, la Biblia exige que quienes ocupan este ministerio sean hombres maduros espiritualmente y probados en su carácter.
 
-# 1. No debe ser un recién convertido
+### 1. No debe ser un recién convertido
 
 El apóstol Pablo, al describir los requisitos para un obispo o anciano, dice:
 
 "No un neófito, no sea que envaneciéndose caiga en la condenación del diablo."
 
-# 1 Timoteo 3:6
+### 1 Timoteo 3:6
 
 La palabra "neófito" significa "recién plantado" o "nuevo en la fe". Un creyente sin madurez espiritual puede ser presa del orgullo y carecer de la experiencia necesaria para guiar a la iglesia.
 
-## 2. Debe ser apto para enseñar
+### 2. Debe ser apto para enseñar
 
 Uno de los requisitos indispensables es: "Es necesario que el obispo sea... apto para enseñar." 1 Timoteo 3:2
 
 No basta con tener carisma o buena voluntad; el pastor debe conocer profundamente las Escrituras para instruir correctamente al pueblo de Dios.
 
-# 3. Debe retener la sana doctrina y refutar el error
+### 3. Debe retener la sana doctrina y refutar el error
 
 Pablo instruyó a Tito diciendo que el anciano debe ser: "Retenedor de la palabra fiel tal como ha sido enseñada, para que también pueda exhortar con sana enseñanza y convencer a los que contradicen." Tito 1:9
 
 Un pastor debe estar preparado para defender la verdad y proteger a la iglesia de las falsas doctrinas.
 
-# 4. Debe ser un ejemplo para la congregación
+### 4. Debe ser un ejemplo para la congregación#
 
 Pedro exhortó a los ancianos:
 
@@ -479,7 +479,7 @@ Pedro exhortó a los ancianos:
 
 La autoridad pastoral no descansa solo en el conocimiento, sino también en una vida que refleje el carácter de Cristo.
 
-## 5. Debe haber sido probado
+### 5. Debe haber sido probado
 
 Respecto a los diáconos, Pablo dice:
 
@@ -487,7 +487,7 @@ Respecto a los diáconos, Pablo dice:
 
 Aunque el texto se refiere a los diáconos, el principio es claro: quienes sirven en cargos de responsabilidad deben demostrar fidelidad y madurez antes de asumir el ministerio.
 
-## 6. La madurez espiritual se adquiere con el tiempo
+### 6. La madurez espiritual se adquiere con el tiempo
 
 El autor de Hebreos escribe:
 
@@ -495,8 +495,8 @@ El autor de Hebreos escribe:
 
 El discernimiento bíblico se desarrolla mediante años de aprendizaje, obediencia y experiencia en la vida cristiana.
 
-# Conclusión
+### *Conclusión*
 
-La Biblia no establece una edad mínima para ser pastor, pero sí exige una madurez espiritual comprobada. Un líder de la iglesia debe conocer profundamente la Palabra de Dios, tener un carácter irreprochable, ser capaz de enseñar y defender la sana doctrina, y haber demostrado fidelidad en su vida. Por eso, el Nuevo Testamento advierte que un creyente inexperto o sin preparación bíblica no debe ocupar el oficio pastoral, pues el cuidado de la iglesia requiere hombres maduros, sabios y aprobados por Dios.
+**La Biblia no establece una edad mínima para ser pastor, pero sí exige una madurez espiritual comprobada. Un líder de la iglesia debe conocer profundamente la Palabra de Dios, tener un carácter irreprochable, ser capaz de enseñar y defender la sana doctrina, y haber demostrado fidelidad en su vida. Por eso, el Nuevo Testamento advierte que un creyente inexperto o sin preparación bíblica no debe ocupar el oficio pastoral, pues el cuidado de la iglesia requiere hombres maduros, sabios y aprobados por Dios.**
 
 
