@@ -7,7 +7,7 @@
 
 ### Un análisis bíblico sobre la naturaleza, las marcas y los peligros de las falsas iglesias
 
- Pues no somos como muchos, que medran falsificando la palabra de Dios, sino que, con sinceridad, como de parte de Dios, y delante de Dios, hablamos en Cristo. (2 Cor. 2;17) 
+ *Pues no somos como muchos, que medran falsificando la palabra de Dios, sino que, con sinceridad, como de parte de Dios, y delante de Dios, hablamos en Cristo. (2 Cor. 2;17)* 
 
 ## Introducción
 
