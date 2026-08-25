@@ -2,12 +2,12 @@
 *Enseñanza básica para Iglesias*
 ### I.B.R VILLA ANGELA
 ## CÓMO RECONOCER UNA IGLESIA VERDADERA
-
+*De Matías Deppeler*
 ### Examinando la iglesia a la luz de la Biblia
 
 ### Un análisis bíblico sobre la naturaleza, las marcas y los peligros de las falsas iglesias
 
- Pues no somos como muchos, que medran falsificando la palabra de Dios, sino que, con sinceridad, como de parte de Dios, y delante de Dios, hablamos en Cristo. (2 Cor. 2;17) I.B.R VILLA ANGELA
+ Pues no somos como muchos, que medran falsificando la palabra de Dios, sino que, con sinceridad, como de parte de Dios, y delante de Dios, hablamos en Cristo. (2 Cor. 2;17) 
 
 ## Introducción
 
@@ -82,7 +82,7 @@ El corazón del evangelio era que Cristo murió para salvar a los pecadores.
 La resurrección era una verdad indispensable de la fe cristiana.
 
 Hechos 2:24-32, Hechos 4:33, 1 Corintios 15:12-20
-
+![](_page_8_Picture_20.jpeg)![](_page_8_Picture_20.jpeg)![](_page_8_Picture_20.jpeg)
 Sin la resurrección, la fe sería vana.
 
 ## 4\_La salvación por gracia mediante la fe
@@ -131,7 +131,7 @@ Mateo 28:19, Hechos 2:41, 1 Corintios 11:23-26
 
 ## 10\_La disciplina y la pureza de la iglesia
 
-Los apóstoles enseñaban a corregir el pecado público y proteger la santidad de la congregación.
+Los apóstoles enseñaban a ![](_page_8_Picture_20.jpeg)corregir el pecado público y proteger la santidad de la congregación.
 
 Mateo 18:15-17, 1 Corintios 5, Tito 3:10
 
@@ -499,4 +499,4 @@ El discernimiento bíblico se desarrolla mediante años de aprendizaje, obedienc
 
 La Biblia no establece una edad mínima para ser pastor, pero sí exige una madurez espiritual comprobada. Un líder de la iglesia debe conocer profundamente la Palabra de Dios, tener un carácter irreprochable, ser capaz de enseñar y defender la sana doctrina, y haber demostrado fidelidad en su vida. Por eso, el Nuevo Testamento advierte que un creyente inexperto o sin preparación bíblica no debe ocupar el oficio pastoral, pues el cuidado de la iglesia requiere hombres maduros, sabios y aprobados por Dios.
 
-![](_page_8_Picture_20.jpeg)
+
