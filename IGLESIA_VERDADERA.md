@@ -33,9 +33,9 @@ Es importante comprender que no toda congregación que lleva el nombre de "igles
 
 Entonces la pregunta no es si una congregación tiene un edificio, muchos asistentes o una denominación reconocida, la pregunta es ¿PERMANECE FIEL A LA ENSEÑANZA DE CRISTO Y DE
 
-# LOS APÓSTOLES? ¿ES COLUMNA Y BALUARTE DE LA VERDAD?
+## LOS APÓSTOLES? ¿ES COLUMNA Y BALUARTE DE LA VERDAD?
 
-# ¿CÓMO ES UNA IGLESIA LOCAL?
+### ¿CÓMO ES UNA IGLESIA LOCAL?
 
 La primera iglesia tenía una característica distintiva:
 
@@ -43,7 +43,7 @@ La primera iglesia tenía una característica distintiva:
 
 La doctrina apostólica era la enseñanza que los apóstoles recibieron directamente de Cristo y transmitieron a la iglesia.
 
-# La autoridad de las Escrituras
+### La autoridad de las Escrituras
 
 Los apóstoles apelaban continuamente a las Escrituras como autoridad.
 
