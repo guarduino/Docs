@@ -1,11 +1,11 @@
 ## TEOLOGIA POSTERIOR
 *Enseñanza básica para Iglesias*
 ### I.B.R VILLA ANGELA
-# CÓMO RECONOCER UNA IGLESIA VERDADERA
+## CÓMO RECONOCER UNA IGLESIA VERDADERA
 
-# Examinando la iglesia a la luz de la Biblia
+### Examinando la iglesia a la luz de la Biblia
 
-## Un análisis bíblico sobre la naturaleza, las marcas y los peligros de las falsas iglesias
+### Un análisis bíblico sobre la naturaleza, las marcas y los peligros de las falsas iglesias
 
  Pues no somos como muchos, que medran falsificando la palabra de Dios, sino que, con sinceridad, como de parte de Dios, y delante de Dios, hablamos en Cristo. (2 Cor. 2;17) I.B.R VILLA ANGELA
 
