@@ -21,7 +21,7 @@ Desde las Escrituras buscaremos responder esa pregunta.
 
 Cuando escuchamos la palabra iglesia, muchas personas piensan en un edificio, una organización religiosa o una denominación. Sin embargo, la Biblia presenta un concepto muy diferente. La iglesia no es un templo construido por manos humanas ni una institución creada por los hombres; es el pueblo que Dios ha redimido por medio de Jesucristo.
 
- Esté termino fue utilizado por primera vez por Jesús cuando dijo: sobre esta roca edificaré mi iglesia; y las puertas del Hades no prevalecerán contra ella. Mt. 16;18
+ Esté término fue utilizado por primera vez por Jesús cuando dijo: sobre esta roca edificaré mi iglesia; y las puertas del Hades no prevalecerán contra ella. Mt. 16;18
 
 La palabra griega ekklesia significa literalmente "los llamados fuera" o "los convocados". En el contexto bíblico, hace referencia a aquellos que Dios ha llamado del mundo para pertenecerle a Él mediante la fe en Cristo. Por eso, la iglesia está formada por personas, no por edificios.
 
