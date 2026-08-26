@@ -57,9 +57,7 @@ HEBREO:וּמִי גּוֹי גָּדוֹל אֲשֶׁר־לוֹ חֻקִּים 
 .  
 “¿Y qué nación grande hay que tenga estatutos y juicios justos como toda esta Torá?”-  
 
-|estatutos y juicios|חֻקִּים וּמִשְׁפָּטִים|
-|--------------------|--------------|
-|conforme a toda esta Torá|כְּכֹל הַתּוֹרָה הַזֹּאת|
-כֹל הַתּוֹרָה הַזֹּאת|
-
-...
+|estatutos y juicios|חֻקִּים וּמִשְׁפָּטִים|δικαιώματα + κρίματα|
+|--------------------|--------------|---------------|
+|
+|conforme a toda esta Torá|כְּכֹל הַתּוֹרָה הַזֹּאת|ὁ νόμος|
