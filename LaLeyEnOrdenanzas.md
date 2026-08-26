@@ -5,11 +5,12 @@
 
 *Efesios 2:15 aboliendo en su carne las enemistades: La Ley de los Mandamientos expresados en ordenanzas ( τον νομον των εντολων εν δογμασιν)*.  
 Ordenanzas :**δογμασιν**[dogmasin]:*Decretos*. 
-#### Por más que la SEPTUAGINTA LXX GRIEGA asigna **νομος**(Ley)  a la TORAH y la Reina Valera Ley a la TORAH, no es exacto ya que TORAH no significa LEY sino INSTRUCCION.  
+#### La SEPTUAGINTA LXX GRIEGA asigna **νομος**(Ley)  a la TORAH y(como la Reina Valera asigna Ley a la TORAH), pero e TORAH no significa LEY sino INSTRUCCION.  
 La correspondencia sería: **Ma’ase ha-Torah** == ἔργα νόμου (erga nomou) == las obras de las Ley (o Torah).  
  #### INTRODUCCION (en Wikipedia)
+ 
 [Los Preceptos de la Torah](https://es.wikipedia.org/wiki/4QMMT?utm_source=chatgpt.com) < *Link*.  
-Es Importante que la palabra LEY en el nuevo testamento   vaya más allá de su sentido griego: **ο νομος : la Ley**, sino más bien la INSTRUCCION o **TORAH** o PENTATEUCO.  
+La palabra LEY en el nuevo testamento   va más allá de su sentido griego: **ο νομος : la Ley**, sino más bien la INSTRUCCION o **TORAH** o PENTATEUCO.  
 Ya que la **TORAH** en sí se compone de:.   
 **
 |mandamiento| מִצְוָה (miṣwāh)|
@@ -31,19 +32,19 @@ Es importante que tengamos presente este pasaje *Efesios 2:15*.
 
 Así como encontramos: .  
 *la ley de los mandamientos expresados en ordenanzas,*.  
-Nos vamos a encontrar Gálatas 2:16 .  
+De la misma manera  vamos a encontrar Gálatas 2:16 .  
   16 sabiendo que el hombre **no es justificado por las obras de la ley**, sino por la fe de Jesucristo, nosotros también hemos creído en Jesucristo, **para ser justificados por la fe de Cristo y no por las obras de la ley, por cuanto por las obras de la ley nadie será justificado**.  
 
   A nadie se le ocurriría tomar como Obra de la Ley o Decreto de la Ley  , *La Creación*, *Noe*, etc,.  
-  A más de no ser justificado más que por Cristo,a nadie se le ocurriría abolir : Amarás a Dios ,Amarás a tu prójimo, a tu padre y a tu madre.   
+  Aún siendo justificados por Cristo,a nadie se le ocurriría abolir : Amarás a Dios ,Amarás a tu prójimo, a tu padre y a tu madre.   
   
-  #### Entonces debemos revisar bien que son OBRAS DE LA LEY. De donde saca Pablo este criterio de los "decretos".  
+  #### Entonces debemos revisar bien qué son OBRAS DE LA LEY. De dónde saca Pablo este criterio de los "decretos".  
   
-  #### En última instancia y si hubieran dudas , siempre esta presente .  
+  #### En cuanto a la vigencia , siempre esta presente .  
   **1CORINTIOS6:9**  ¿No sabéis que los injustos no heredarán el reino de Dios? No erréis; ni los fornicarios, ni los idólatras, ni los adúlteros, ni los afeminados, ni los que se echan con varones,ni los ladrones, ni los avaros, ni los borrachos, ni los maldicientes, ni los estafadores, heredarán el reino de Dios. **O sea que los preceptos que regulan estas conductas no prescriben**.  
-  ENTONCES RESCATAMOS: Ro3_20 "Porlas obras de la Ley nadie será Justificado".Y TAMBIEN : "no conocí el pecado sino por la ley; porque tampoco conociera la codicia, si la ley no dijera: No codiciarás"Ro7-7.  
+  ENTONCES RESCATAMOS: Ro3_20 "Por las obras de la Ley nadie será Justificado".Y A LA VEZ : "no conocí el pecado sino por la ley; porque tampoco conociera la codicia, si la ley no dijera: No codiciarás"Ro7-7.  
   
-###  Disposiciones normativas que obligan a Israel
+###  Disposiciones normativas que obliganban a Israel
 #### Levítico 18:4–5
 “Haréis mis mišpāṭîm y guardaréis mis ḥuqqôt, para andar en ellos.”.  
   CORRESPONDENCIA. 
@@ -62,6 +63,6 @@ HEBREO:וּמִי גּוֹי גָּדוֹל אֲשֶׁר־לוֹ חֻקִּים 
 .  
 “¿Y qué nación grande hay que tenga estatutos y juicios justos como toda esta Torá?”-  
 
-|estatutos y juicios|חֻקִּים וּמִשְׁפָּטִים|δικαιώματα + κρίματα|
+|*estatutos y juicios*|חֻקִּים וּמִשְׁפָּטִים|δικαιώματα + κρίματα|
 |--------------------|--------------|---------------|
-|conforme a toda esta Torá|כְּכֹל הַתּוֹרָה הַזֹּאת|ὁ νόμος|
+|*conforme a toda esta Torá*|כְּכֹל הַתּוֹרָה הַזֹּאת|ὁ νόμος|
