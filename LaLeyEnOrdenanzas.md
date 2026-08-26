@@ -1,12 +1,13 @@
 
 ### *La Ley de los Mandamientos en formas de ordenanzas (Ma’ase ha-Torah)Efesios 2_15*
+*Enconstrucción* refrescar cada tanto la página para ver última versión.  
 ## Preceptos de la Torá
 ### Teología Paulina
 
 *Efesios 2:15 aboliendo en su carne las enemistades: La Ley de los Mandamientos expresados en ordenanzas ( τον νομον των εντολων εν δογμασιν)*.  
 Ordenanzas :**δογμασιν**[dogmasin]:*Decretos*. 
 #### La SEPTUAGINTA LXX GRIEGA asigna **νομος**(Ley)  a la TORAH y(como la Reina Valera asigna Ley a la TORAH), pero e TORAH no significa LEY sino INSTRUCCION.  
-La correspondencia sería: **Ma’ase ha-Torah** == ἔργα νόμου (erga nomou) == las obras de las Ley (o Torah).  
+La correspondencia sería: **Ma’ase ha-Torah** == ἔργα νόμου (erga nomou) == las obras de las Ley (o [Torah]()).  
  #### INTRODUCCION (en Wikipedia)
  
 [Los Preceptos de la Torah](https://es.wikipedia.org/wiki/4QMMT?utm_source=chatgpt.com) < *Link*.  
