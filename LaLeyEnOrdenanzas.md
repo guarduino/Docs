@@ -39,5 +39,9 @@ Nos vamos a encontrar Gálatas 2:16 .
   **1CORINTIOS6:9**  ¿No sabéis que los injustos no heredarán el reino de Dios? No erréis; ni los fornicarios, ni los idólatras, ni los adúlteros, ni los afeminados, ni los que se echan con varones,ni los ladrones, ni los avaros, ni los borrachos, ni los maldicientes, ni los estafadores, heredarán el reino de Dios.
   
 ###  Disposiciones normativas que obligan a Israel
-
-  
+#### Levítico 18:4–5
+“Haréis mis mišpāṭîm y guardaréis mis ḥuqqôt, para andar en ellos.”.  
+  CORRESPONDENCIA.  
+  |-------------|------------------|------------|
+  |mišpāṭîm |προστάγματα *PROSTAGMATA*|disposiciones judiciales|
+  |---------------------------------------------|
