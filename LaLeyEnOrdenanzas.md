@@ -8,8 +8,8 @@ Ordenanzas :**δογμασιν**[dogmasin]:*Decretos*.
 La correspondencia sería: **Ma’ase ha-Torah** == ἔργα νόμου (erga nomou) == las obras de las Ley.  
  #### INTRODUCCION (en Wikipedia)
 [Los Preceptos de la Torah](https://es.wikipedia.org/wiki/4QMMT?utm_source=chatgpt.com) < *Link*.  
-Es Importante que la palabra LEY en el nuevo testamento   vaya más allá de su sentido griego: **ο νομος : la Ley**, sino más bien la ENSEÑANZA  o **TORAH** o PENTATEUCO.  
-Ya que la **TORAH** en sí se compone de:.  
+Es Importante que la palabra LEY en el nuevo testamento   vaya más allá de su sentido griego: **ο νομος : la Ley**, sino más bien la INSTRUCCION o **TORAH** o PENTATEUCO.  
+Ya que la **TORAH** en sí se compone de:.   
 **
 |mandamiento| מִצְוָה (miṣwāh)|
 |-----------|--------------|
