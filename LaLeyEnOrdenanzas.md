@@ -7,7 +7,7 @@
 **δογμασιν**:*Decretos*.   
  ### INTRODUCCION (en Wikipedia)
 [Los Preceptos de la Torah](https://es.wikipedia.org/wiki/4QMMT?utm_source=chatgpt.com) < *Link*.  
-Es Importante que la palabra LEY en el nuevo testamento  deje de ser llamada con su sentido griego: **ο νομος>la Ley**, sino mÁs bien la ENESEÑANZA O PENTATEUCO **TORAH**.
+Es Importante que la palabra LEY en el nuevo testamento  deje de ser llamada con su sentido griego: **ο νομος>la Ley**, sino más bien la ENESEÑANZA O PENTATEUCO **TORAH**.
 Ya que la**TORAH** ensi se compone de:.  
 
 מִצְוָה (miṣwāh) — mandamiento
