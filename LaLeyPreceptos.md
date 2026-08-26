@@ -58,11 +58,12 @@ De la misma manera  vamos a encontrar Gálatas 2:16 .
   *Romanos 8_4 para que la justicia de la ley TORAH se cumpliese en nosotros, que no andamos conforme a la carne, sino conforme al Espíritu.   
   *Romanos 8_7 Por cuanto los designios de la carne son enemistad contra Dios; porque no se sujetan a la ley de Dios [TORAH](), ni tampoco pueden;*.  
   ### Dos regímenes : LA LEY , LA GRACIA .  
-  «Porque el pecado no se enseñoreará de vosotros; pues no estáis bajo la ley, sino bajo la gracia».(Romanos 6:14).  
+  «Porque el pecado no se enseñoreará de vosotros; pues no estáis bajo la ley [TORAH](), sino bajo la gracia».(Romanos 6:14).  
   
   #### En cuanto a la vigencia , siempre está presente .  
-  **1CORINTIOS6:9**  ¿No sabéis que los injustos no heredarán el reino de Dios? No erréis; ni los fornicarios, ni los idólatras, ni los adúlteros, ni los afeminados, ni los que se echan con varones,ni los ladrones, ni los avaros, ni los borrachos, ni los maldicientes, ni los estafadores, heredarán el reino de Dios. **O sea que los preceptos que regulan estas conductas no prescriben**.  
-  ENTONCES RESCATAMOS: Ro3_20 "Por las obras de la Ley nadie será Justificado".Y A LA VEZ : "no conocí el pecado sino por la ley; porque tampoco conociera la codicia, si la ley no dijera: No codiciarás"Ro7-7.  
+  **1CORINTIOS6:9**  ¿No sabéis que los injustos no heredarán el reino de Dios? No erréis; ni los fornicarios, ni los idólatras, ni los adúlteros, ni los afeminados, ni los que se echan con varones,ni los ladrones, ni los avaros, ni los borrachos, ni los maldicientes, ni los estafadores, heredarán el reino de Dios. **O sea que los preceptos que regulan estas conductas no prescriben**. 
+  
+  **ENTONCES RESCATAMOS**: Ro3_20 "Por las obras de la Ley [TORAH]() nadie será Justificado".Y A LA VEZ : "no conocí el pecado sino por la ley [TORAH](); porque tampoco conociera la codicia, si la ley no dijera: No codiciarás"Ro7-7.  
   
 ###  Disposiciones normativas que obliganban a Israel
 #### Levítico 18:4–5
