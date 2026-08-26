@@ -36,10 +36,11 @@ Nos vamos a encontrar Gálatas 2:16 .
   A nadie se le ocurriría tomar como Obra de la Ley o Decreto de la Ley  , *La Creación*, *Noe*, etc,.  
   A más de no ser justificado más que por Cristo,a nadie se le ocurriría abolir : Amarás a Dios ,Amarás a tu prójimo, a tu padre y a tu madre.   
   
-  Entonces debemos revisar bien que son OBRAS DE LA LEY. De donde saca Pablo este criterio de los "decretos".  
+  #### Entonces debemos revisar bien que son OBRAS DE LA LEY. De donde saca Pablo este criterio de los "decretos".  
   
   #### En última instancia y si hubieran dudas , siempre esta presente .  
-  **1CORINTIOS6:9**  ¿No sabéis que los injustos no heredarán el reino de Dios? No erréis; ni los fornicarios, ni los idólatras, ni los adúlteros, ni los afeminados, ni los que se echan con varones,ni los ladrones, ni los avaros, ni los borrachos, ni los maldicientes, ni los estafadores, heredarán el reino de Dios.
+  **1CORINTIOS6:9**  ¿No sabéis que los injustos no heredarán el reino de Dios? No erréis; ni los fornicarios, ni los idólatras, ni los adúlteros, ni los afeminados, ni los que se echan con varones,ni los ladrones, ni los avaros, ni los borrachos, ni los maldicientes, ni los estafadores, heredarán el reino de Dios. * O sea que los preceptos que regulan estas conductas no prescriben.  
+  ENTONCES RESCATAMOS: Ro3_20 "Porlas obras de la Ley nadie será Justificado".Y TAMBIEN : "no conocí el pecado sino por la ley; porque tampoco conociera la codicia, si la ley no dijera: No codiciarás"Ro7-7.  
   
 ###  Disposiciones normativas que obligan a Israel
 #### Levítico 18:4–5
