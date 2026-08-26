@@ -1,7 +1,7 @@
 
 ### *La Ley de los Mandamientos en formas de ordenanzas (Ma’ase ha-Torah)Efesios 2:15*
 ## Preceptos de la Torá
-###  Teología Paulina
+### Teología Paulina
 
 *Efesios 2:15 aboliendo en su carne las enemistades: La Ley de los Mandamientos expresados en ordenanzas ( τον νομον των εντολων εν δογμασιν)*.  
 Ordenanzas :**δογμασιν**[dogmasin]:*Decretos*. 
