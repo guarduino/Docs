@@ -45,14 +45,14 @@ De la misma manera  vamos a encontrar Gálatas 2:16 .
  LEY :Regla que describe el comportamiento de algo.Llamaré **REGLA**.    
  LEY DE DIOS:Disposición que "prescribe" una conducta.Llamaré **TORAH**.  
   Ahora retraduzco . 
-  *Romanos 7:25 Gracias doy a Dios, por Jesucristo Señor nuestro. Así que, yo mismo con la mente sirvo a la ley [TORAH]() de Dios, mas con la carne a la ley [REGLA]() del pecado.  
-  *Romanos 8_2 Porque la ley del Espíritu [REGLA]() de vida en Cristo Jesús me ha librado de la ley [REGLA]() del pecado y de la muerte* . 
-  *Romanos 8_3 Porque lo que era imposible para la ley [TORAH](), por cuanto era débil por la carne, Dios, enviando a su Hijo en semejanza de carne de pecado y a causa del pecado, condenó al pecado en la carne;*. 
-  *Romanos 8_4 para que la justicia de la ley TORAH se cumpliese en nosotros, que no andamos conforme a la carne, sino conforme al Espíritu.  
-  *Romanos 8_7 Por cuanto los designios de la carne son enemistad contra Dios; porque no se sujetan a la ley de Dios [TORAH](), ni tampoco pueden;*
+   *Romanos  7:23 Veo otra ley [REGLA]() en mis miembros...)*.
+  *Romanos 7:25 Gracias doy a Dios, por Jesucristo Señor nuestro. Así que, yo mismo con la mente sirvo a la ley [TORAH]() de Dios, mas con la carne a la ley [REGLA]() del pecado*.   
+  *Romanos 8_2 Porque la ley del Espíritu [REGLA]() de vida en Cristo Jesús me ha librado de la ley [REGLA]() del pecado y de la muerte* .  
+  *Romanos 8_3 Porque lo que era imposible para la ley [TORAH](), por cuanto era débil por la carne, Dios, enviando a su Hijo en semejanza de carne de pecado y a causa del pecado, condenó al pecado en la carne;*.  
+  *Romanos 8_4 para que la justicia de la ley TORAH se cumpliese en nosotros, que no andamos conforme a la carne, sino conforme al Espíritu.   
+  *Romanos 8_7 Por cuanto los designios de la carne son enemistad contra Dios; porque no se sujetan a la ley de Dios [TORAH](), ni tampoco pueden;*.  
   ### Dos regímenes : LA LEY , LA GRACIA .  
-  «Porque el pecado no se enseñoreará de vosotros; pues no estáis bajo la ley, sino bajo la gracia.»
-(Romanos 6:14)
+  «Porque el pecado no se enseñoreará de vosotros; pues no estáis bajo la ley, sino bajo la gracia».(Romanos 6:14).  
   
   #### En cuanto a la vigencia , siempre está presente .  
   **1CORINTIOS6:9**  ¿No sabéis que los injustos no heredarán el reino de Dios? No erréis; ni los fornicarios, ni los idólatras, ni los adúlteros, ni los afeminados, ni los que se echan con varones,ni los ladrones, ni los avaros, ni los borrachos, ni los maldicientes, ni los estafadores, heredarán el reino de Dios. **O sea que los preceptos que regulan estas conductas no prescriben**.  
