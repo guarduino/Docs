@@ -41,11 +41,17 @@ De la misma manera  vamos a encontrar Gálatas 2:16 .
   #### Entonces debemos revisar bien ¡qué son OBRAS DE LA LEY!. ¿De dónde saca Pablo este criterio de los "decretos"?. 
   ENCONTRAMOS QUE EXISTEN:.  
   TORAH INSTRUCCIONES  Y TORAH DECRETOS (los que condenan el incumplimiento).  
-  ### Romanos 8 , el pasaje que menciona más veces LEY (**νομοσ**), con diferentes significados (*Polisemia*).  
+  ### Romanos 7 y 8 , los versículos que mencionan más veces LEY (**νομοσ**), con diferentes significados (*Polisemia*).  
  LEY :Regla que describe el comportamiento de algo.Llamaré **REGLA**.    
  LEY DE DIOS:Disposición que "prescribe" una conducta.Llamaré **TORAH**.  
   Ahora retraduzco . 
-   *Romanos  7:23 Veo otra ley [REGLA]() en mis miembros...)*.
+  *Romanos 7_ 7¿Qué diremos, pues? ¿La ley [TORAH]() es pecado? En ninguna manera. Pero yo no conocí el pecado sino por la ley; porque tampoco conociera la codicia, si la ley [TORAH]() no dijera: No codiciarás.
+  8 Mas el pecado, tomando ocasión por el mandamiento, produjo en mí toda codicia; porque sin la ley el pecado está muerto.
+ *Romanos 7_12 De manera que la ley [TORAH]() a la verdad es santa, y el mandamiento santo, justo y bueno.
+ *Romanos 7_14 Porque sabemos que la ley [TORAH]() es espiritual; mas yo soy carnal, vendido al pecado.
+ *Romanos 7_21 Así que, queriendo yo hacer el bien, hallo esta ley[REGLA](): que el mal está en mí.
+  22 Porque según el hombre interior, me deleito en la ley[TORAH]() de Dios;
+  *Romanos  7:23 Veo otra ley [REGLA]() en mis miembros...)*.
   *Romanos 7:25 Gracias doy a Dios, por Jesucristo Señor nuestro. Así que, yo mismo con la mente sirvo a la ley [TORAH]() de Dios, mas con la carne a la ley [REGLA]() del pecado*.   
   *Romanos 8_2 Porque la ley del Espíritu [REGLA]() de vida en Cristo Jesús me ha librado de la ley [REGLA]() del pecado y de la muerte* .  
   *Romanos 8_3 Porque lo que era imposible para la ley [TORAH](), por cuanto era débil por la carne, Dios, enviando a su Hijo en semejanza de carne de pecado y a causa del pecado, condenó al pecado en la carne;*.  
