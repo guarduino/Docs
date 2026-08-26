@@ -41,7 +41,7 @@ De la misma manera  vamos a encontrar Gálatas 2:16 .
   #### Entonces debemos revisar bien ¡qué son OBRAS DE LA LEY!. ¿De dónde saca Pablo este criterio de los "decretos"?. 
   ENCONTRAMOS QUE EXISTEN:.  
   TORAH INSTRUCCIONES  Y TORAH DECRETOS (los que condenan el incumplimiento).  
-  ### Romanos 8 , el pasaje que menciona más veces LEY (**νομοσ**), con diferentes significados.  
+  ### Romanos 8 , el pasaje que menciona más veces LEY (**νομοσ**), con diferentes significados (*Polisemia*).  
  LEY DEL ENTORNO:Regla que describe el comportamiento de algo.Llamaré **REGLA**.    
  LEY DE DIOS:Disposición que prescribe una conducta.Llamaré **TORAH**.  
   Ahora retraduzco . 
