@@ -41,8 +41,9 @@ Nos vamos a encontrar Gálatas 2:16 .
 ###  Disposiciones normativas que obligan a Israel
 #### Levítico 18:4–5
 “Haréis mis mišpāṭîm y guardaréis mis ḥuqqôt, para andar en ellos.”.  
-  CORRESPONDENCIA.  
-
+  CORRESPONDENCIA. 
+  |:  Hebreo   :|:Griego          :|:    Idea  :|
+  |-------------|------------------|------------|
   |mišpāṭîm |κρίματα *krimata*|disposiciones judiciales|
   |-------------|------------------|------------|
   |---------------------------------------------|
