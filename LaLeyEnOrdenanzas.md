@@ -48,4 +48,18 @@ Nos vamos a encontrar Gálatas 2:16 .
   |ḥuqqôt  |προστάγματα *prostagmata*|estatutos/prescripciones|
   |taʿăśû  |ποιήσετε *poiesete|hacer/cumplir|
   |tišmerû |φυλάξεσθε *filazesthe*|guardar/observar|
+#### Deuteronomio 4:1:“Ahora, Israel, escucha los estatutos y los juicios…”
+#### Deuteronomio 4:8 “estatutos y juicios justos conforme a toda esta Ley”
+ *δικαιώματα καὶ κρίματα δίκαια κατὰ πάντα τὸν νόμον τοῦτον*.  
+ “estatutos y juicios justos conforme a toda esta **Ley**”.  
+#### Completo:
+HEBREO:וּמִי גּוֹי גָּדוֹל אֲשֶׁר־לוֹ חֻקִּים וּמִשְׁפָּטִים צַדִּיקִם כְּכֹל הַתּוֹרָה הַזֹּאת
+.  
+“¿Y qué nación grande hay que tenga estatutos y juicios justos como toda esta Torá?”-  
 
+|estatutos y juicios|חֻקִּים וּמִשְׁפָּטִים|
+|--------------------|--------------|
+|conforme a toda esta Torá|כְּכֹל הַתּוֹרָה הַזֹּאת|
+כֹל הַתּוֹרָה הַזֹּאת|
+
+...
