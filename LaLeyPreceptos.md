@@ -42,8 +42,8 @@ De la misma manera  vamos a encontrar Gálatas 2:16 .
   ENCONTRAMOS QUE EXISTEN:.  
   TORAH INSTRUCCIONES  Y TORAH DECRETOS (los que condenan el incumplimiento).  
   ### Romanos 8 , el pasaje que menciona más veces LEY (**νομοσ**), con diferentes significados (*Polisemia*).  
- LEY DEL ENTORNO:Regla que describe el comportamiento de algo.Llamaré **REGLA**.    
- LEY DE DIOS:Disposición que prescribe una conducta.Llamaré **TORAH**.  
+ LEY :Regla que describe el comportamiento de algo.Llamaré **REGLA**.    
+ LEY DE DIOS:Disposición que "prescribe" una conducta.Llamaré **TORAH**.  
   Ahora retraduzco . 
   *Romanos 7:25 Gracias doy a Dios, por Jesucristo Señor nuestro. Así que, yo mismo con la mente sirvo a la ley [TORAH]() de Dios, mas con la carne a la ley [REGLA]() del pecado.  
   *Romanos 8_2 Porque la ley del Espíritu [REGLA]() de vida en Cristo Jesús me ha librado de la ley [REGLA]() del pecado y de la muerte* . 
