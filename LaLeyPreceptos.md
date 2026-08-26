@@ -63,7 +63,7 @@ De la misma manera  vamos a encontrar Gálatas 2:16 .
   #### En cuanto a la vigencia , siempre está presente .  
   **1CORINTIOS6:9**  ¿No sabéis que los injustos no heredarán el reino de Dios? No erréis; ni los fornicarios, ni los idólatras, ni los adúlteros, ni los afeminados, ni los que se echan con varones,ni los ladrones, ni los avaros, ni los borrachos, ni los maldicientes, ni los estafadores, heredarán el reino de Dios. **O sea que los preceptos que regulan estas conductas no prescriben**. 
   
-  **ENTONCES RESCATAMOS**: Ro3_20 "Por las obras de la Ley [TORAH]() nadie será Justificado".Y A LA VEZ : "no conocí el pecado sino por la ley [TORAH](); porque tampoco conociera la codicia, si la ley no dijera: No codiciarás"Ro7-7.  
+ ### **ENTONCES RESCATAMOS**: Ro3_20 "Por las obras de la Ley [TORAH]() nadie será Justificado".Y A LA VEZ : "no conocí el pecado sino por la ley [TORAH](); porque tampoco conociera la codicia, si la ley no dijera: No codiciarás"Ro7-7.  
   
 ###  Disposiciones normativas que obliganban a Israel
 #### Levítico 18:4–5
