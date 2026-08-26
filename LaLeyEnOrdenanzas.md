@@ -1,8 +1,7 @@
 
 ### *La Ley de los Mandamientos en formas de ordenanzas (Ma’ase ha-Torah)Efesios 2:15*
 ## Preceptos de la Torá
-###  Teología Paulina, relación con manuscritos de QUMRAM :4QMMT, también conocido como MMT, o la Carta Halájica.    
-*Investigación* 
+###  Teología Paulina
 
 *Efesios 2:15 aboliendo en su carne las enemistades: La Ley de los Mandamientos expresados en ordenanzas ( τον νομον των εντολων εν δογμασιν)*
 Ordenanzas :**δογμασιν**[dogmasin]:*Decretos*.   
@@ -39,6 +38,6 @@ Nos vamos a encontrar Gálatas 2:16 .
   #### En última instancia y si hubieran dudas , siempre esta presente .  
   **1CORINTIOS6:9**  ¿No sabéis que los injustos no heredarán el reino de Dios? No erréis; ni los fornicarios, ni los idólatras, ni los adúlteros, ni los afeminados, ni los que se echan con varones,ni los ladrones, ni los avaros, ni los borrachos, ni los maldicientes, ni los estafadores, heredarán el reino de Dios.
   
+###  Disposiciones normativas que obligan a Israel
 
-*Continuará*.  
-**Texto reconstruido a partir de manuscritos que formaban parte de los Rollos del Mar Muerto descubiertos en Qumrán.**  
+  
