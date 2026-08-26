@@ -42,10 +42,10 @@ Nos vamos a encontrar Gálatas 2:16 .
 #### Levítico 18:4–5
 “Haréis mis mišpāṭîm y guardaréis mis ḥuqqôt, para andar en ellos.”.  
   CORRESPONDENCIA. 
-  |  Hebreo   |Griego          |    Idea  |
-  |------------|------------------|------------|
-  |mišpāṭîm |κρίματα *krimata*|disposiciones judiciales|
-  |ḥuqqôt     |προστάγματα *prostagmata*|estatutos/prescripciones|
-  |taʿăśû     |ποιήσετε *poiesete|hacer/cumplir|
-  |tišmerû    |φυλάξεσθε *filazesthe*|guardar/observar|
-  |------------|------------------|------------|
+  |  Hebreo|Griego             |    Idea  |
+  |--------|------------------|------------|
+  |mišpāṭîm|κρίματα *krimata*|disposiciones judiciales|
+  |ḥuqqôt  |προστάγματα *prostagmata*|estatutos/prescripciones|
+  |taʿăśû  |ποιήσετε *poiesete|hacer/cumplir|
+  |tišmerû |φυλάξεσθε *filazesthe*|guardar/observar|
+
