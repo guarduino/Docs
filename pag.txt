@@ -1,4 +1,4 @@
 https://guarduino.github.io/Docs/IGLESIA_VERDADERA.md
-https://guarduino.github.io/Docs/LaLeyenOrdenanzas.md
+https://guarduino.github.io/Docs/LaLeyeEnOrdenanzas.md
 https://guarduino.github.io/Docs/Prueba.html
 https://guarduino.github.io/Docs/plymouthbrethren_Dones.md
