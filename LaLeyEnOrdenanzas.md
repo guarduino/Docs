@@ -14,7 +14,7 @@ Ya que la **TORAH** en sí se compone de:.
 |mandamiento| מִצְוָה (miṣwāh)|
 |-----------|--------------|
 |estatuto,decreto|חֹק (ḥōq)| 
-|juicio,disposición jurídica|
+|juicio,disposición jurídica|מִשְׁפָּט (mišpāṭ)|
 |instrucción| תּוֹרָה (tôrāh)|
 |testimonio|עֵדוּת (ʿēdût)|
 |palabra/asunto|דָּבָר (dābār)|
