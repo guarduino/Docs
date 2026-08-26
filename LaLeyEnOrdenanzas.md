@@ -4,18 +4,20 @@
 ###  Teología Paulina
 
 *Efesios 2:15 aboliendo en su carne las enemistades: La Ley de los Mandamientos expresados en ordenanzas ( τον νομον των εντολων εν δογμασιν)*
-Ordenanzas :**δογμασιν**[dogmasin]:*Decretos*.   
+Ordenanzas :**δογμασιν**[dogmasin]:*Decretos*. 
+La correspondencia sería: **Ma’ase ha-Torah** == ἔργα νόμου (erga nomou) == las obras de las Ley.  
  #### INTRODUCCION (en Wikipedia)
 [Los Preceptos de la Torah](https://es.wikipedia.org/wiki/4QMMT?utm_source=chatgpt.com) < *Link*.  
-Es Importante que la palabra LEY en el nuevo testamento   vaya más allá de su sentido griego: **ο νομος : la Ley**, sino más bien la ENSEÑANZA  o **TORAH** o PENTATEUCO.
-Ya que la**TORAH** ensi se compone de:.  
+Es Importante que la palabra LEY en el nuevo testamento   vaya más allá de su sentido griego: **ο νομος : la Ley**, sino más bien la ENSEÑANZA  o **TORAH** o PENTATEUCO.  
+Ya que la **TORAH** en sí se compone de:.  
 **
-מִצְוָה (miṣwāh) — mandamiento
-חֹק (ḥōq) — estatuto, decreto
-מִשְׁפָּט (mišpāṭ) — juicio, disposición jurídica
-תּוֹרָה (tôrāh) — instrucción
-עֵדוּת (ʿēdût) — testimonio
-דָּבָר (dābār) — palabra/asunto
+|mandamiento| מִצְוָה (miṣwāh)|
+|-----------|--------------|
+|estatuto,decreto|חֹק (ḥōq)| 
+|juicio,disposición jurídica|
+|instrucción| תּוֹרָה (tôrāh)|
+|testimonio|עֵדוּת (ʿēdût)|
+|palabra/asunto|דָּבָר (dābār)|
 
 
 ________________________________________________________________________.  
