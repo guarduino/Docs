@@ -38,9 +38,20 @@ De la misma manera  vamos a encontrar Gálatas 2:16 .
   A nadie se le ocurriría tomar como Obra de la Ley o Decreto de la Ley  , *La Creación*, *Noe*, etc,.  
   Aún siendo justificados por Cristo,a nadie se le ocurriría abolir : Amarás a Dios ,Amarás a tu prójimo, a tu padre y a tu madre.   
   
-  #### Entonces debemos revisar bien ¡qué son OBRAS DE LA LEY!. ¿De dónde saca Pablo este criterio de los "decretos"?.  
+  #### Entonces debemos revisar bien ¡qué son OBRAS DE LA LEY!. ¿De dónde saca Pablo este criterio de los "decretos"?. 
+  ENCONTRAMOS QUE EXISTEN:.  
+  TORAH INSTRUCCIONES  Y TORAH DECRETOS (los que condenan el incumplimiento).  
+  ### Romanos 8 , el pasaje que menciona más veces LEY , con diferentes significados.  
+  1)Regla que describe el comportamiento de algo.Llamaré **REGLA**.    
+  2)Disposición que prescribe una conducta.Llamaré **TORAH**.  
+  Ahora retraduzco Romanos 8. 
+  *Romanos 8_2 Porque la ley del Espíritu de vida en Cristo Jesús me ha librado de la ley [REGLA]() del pecado y de la muerte.*
   
-  #### En cuanto a la vigencia , siempre esta presente .  
+  ### Dos regímenes : LA LEY , LA GRACIA .  
+  «Porque el pecado no se enseñoreará de vosotros; pues no estáis bajo la ley, sino bajo la gracia.»
+(Romanos 6:14)
+  
+  #### En cuanto a la vigencia , siempre está presente .  
   **1CORINTIOS6:9**  ¿No sabéis que los injustos no heredarán el reino de Dios? No erréis; ni los fornicarios, ni los idólatras, ni los adúlteros, ni los afeminados, ni los que se echan con varones,ni los ladrones, ni los avaros, ni los borrachos, ni los maldicientes, ni los estafadores, heredarán el reino de Dios. **O sea que los preceptos que regulan estas conductas no prescriben**.  
   ENTONCES RESCATAMOS: Ro3_20 "Por las obras de la Ley nadie será Justificado".Y A LA VEZ : "no conocí el pecado sino por la ley; porque tampoco conociera la codicia, si la ley no dijera: No codiciarás"Ro7-7.  
   
