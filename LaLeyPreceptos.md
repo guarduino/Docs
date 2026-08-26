@@ -13,7 +13,6 @@ La correspondencia sería: **Ma’ase ha-Torah** == ἔργα νόμου (erga n
 [Los Preceptos de la Torah](https://es.wikipedia.org/wiki/4QMMT?utm_source=chatgpt.com) < *Link*.  
 La palabra LEY en el nuevo testamento   va más allá de su sentido griego: **ο νομος : la Ley**, sino más bien la INSTRUCCION o **TORAH** o PENTATEUCO.  
 Ya que la **TORAH** en sí se compone de:.   
-**
 |mandamiento| מִצְוָה (miṣwāh)|
 |-----------|--------------|
 |estatuto,decreto|חֹק (ḥōq)| 
