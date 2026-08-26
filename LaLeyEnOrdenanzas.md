@@ -1,5 +1,5 @@
 ## Preceptos de la Torá
-## La Ley de los Mandamientos en formas de ordenanzas (Ma’ase ha-Torah)Efesios 2:15
+### *La Ley de los Mandamientos en formas de ordenanzas (Ma’ase ha-Torah)Efesios 2:15*
 ###  Teología Paulina, relación con manuscritos de QUMRAM :4QMMT, también conocido como MMT, o la Carta Halájica.    
 *Investigación* 
 
