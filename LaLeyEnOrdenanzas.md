@@ -28,6 +28,7 @@ Es importante que tengamos presente este pasaje *Efesios 2:15*.
    Porque él es nuestra paz, que de ambos pueblos hizo uno, derribando la pared intermedia de separación,
    **aboliendo en su carne las enemistades, la ley de los mandamientos expresados en ordenanzas**, para crear en sí mismo de los dos un solo y nuevo hombre, haciendo la paz,
    y mediante la cruz reconciliar con Dios a ambos en un solo cuerpo, matando en ella las enemistades.  
+
 Así como encontramos: .  
 *la ley de los mandamientos expresados en ordenanzas,*.  
 Nos vamos a encontrar Gálatas 2:16 .  
