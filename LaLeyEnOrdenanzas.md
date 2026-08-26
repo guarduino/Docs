@@ -3,8 +3,9 @@
 ## Preceptos de la Torá
 ###  Teología Paulina
 
-*Efesios 2:15 aboliendo en su carne las enemistades: La Ley de los Mandamientos expresados en ordenanzas ( τον νομον των εντολων εν δογμασιν)*
+*Efesios 2:15 aboliendo en su carne las enemistades: La Ley de los Mandamientos expresados en ordenanzas ( τον νομον των εντολων εν δογμασιν)*.  
 Ordenanzas :**δογμασιν**[dogmasin]:*Decretos*. 
+#### Por más que la SEPTUAGINTA LXX asigna **νομος**(Ley)  a la TORAH y la Reina Valera Ley a la TORAH, no es exacto ya que TORAH no significa LEY sino INSTRUCCION.  
 La correspondencia sería: **Ma’ase ha-Torah** == ἔργα νόμου (erga nomou) == las obras de las Ley.  
  #### INTRODUCCION (en Wikipedia)
 [Los Preceptos de la Torah](https://es.wikipedia.org/wiki/4QMMT?utm_source=chatgpt.com) < *Link*.  
