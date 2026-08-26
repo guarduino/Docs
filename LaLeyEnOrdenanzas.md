@@ -42,6 +42,7 @@ Nos vamos a encontrar Gálatas 2:16 .
 #### Levítico 18:4–5
 “Haréis mis mišpāṭîm y guardaréis mis ḥuqqôt, para andar en ellos.”.  
   CORRESPONDENCIA.  
+
+  |mišpāṭîm |κρίματα *krimata*|disposiciones judiciales|
   |-------------|------------------|------------|
-  |mišpāṭîm |προστάγματα *PROSTAGMATA*|disposiciones judiciales|
   |---------------------------------------------|
