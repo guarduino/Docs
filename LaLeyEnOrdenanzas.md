@@ -41,3 +41,4 @@ Nos vamos a encontrar Gálatas 2:16 .
   
 
 *Continuará*.  
+**Texto reconstruido a partir de manuscritos que formaban parte de los Rollos del Mar Muerto descubiertos en Qumrán.**  
