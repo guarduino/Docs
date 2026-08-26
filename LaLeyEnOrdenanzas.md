@@ -45,6 +45,7 @@ Nos vamos a encontrar Gálatas 2:16 .
   |  Hebreo   |Griego          |    Idea  |
   |------------|------------------|------------|
   |mišpāṭîm |κρίματα *krimata*|disposiciones judiciales|
-  |------------|------------------|------------|
   |ḥuqqôt     |προστάγματα *prostagmata*|estatutos/prescripciones|
+  |taʿăśû     |ποιήσετε *poiesete|hacer/cumplir|
+  |tišmerû    |φυλάξεσθε *filazesthe*|guardar/observar|
   |------------|------------------|------------|
