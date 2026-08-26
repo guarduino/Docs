@@ -6,7 +6,7 @@
 
 *Efesios 2:15 aboliendo en su carne las enemistades: La Ley de los Mandamientos expresados en ordenanzas ( τον νομον των εντολων εν δογμασιν)*
 Ordenanzas :**δογμασιν**[dogmasin]:*Decretos*.   
- ### INTRODUCCION (en Wikipedia)
+ #### INTRODUCCION (en Wikipedia)
 [Los Preceptos de la Torah](https://es.wikipedia.org/wiki/4QMMT?utm_source=chatgpt.com) < *Link*.  
 Es Importante que la palabra LEY en el nuevo testamento  deje de ser llamada con su sentido griego: **ο νομος:la Ley**, sino más bien la ENSEÑANZA o PENTATEUCO o **TORAH**.
 Ya que la**TORAH** ensi se compone de:.  
