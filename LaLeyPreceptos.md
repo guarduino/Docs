@@ -1,6 +1,8 @@
 
 ### *La Ley de los Mandamientos en formas de ordenanzas (Ma’ase ha-Torah)Efesios 2_15*
-*En construcción* refrescar cada tanto la página para ver última versión.  
+*En construcción*.  
+
+Refrescar cada tanto la página para ver última versión.  
 ## Preceptos de la Torá
 ### Teología Paulina
 
