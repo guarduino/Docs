@@ -7,7 +7,8 @@ Refrescar cada tanto la página para ver última versión.
 ### Teología Paulina
 
 *Efesios 2:15 aboliendo en su carne las enemistades: La Ley de los Mandamientos expresados en ordenanzas ( τον νομον των εντολων εν δογμασιν)*.  
-Ordenanzas >  **δογμασιν**[dogmasin]:*en Decretos* de  dogmas. 
+Ordenanzas >  
+**δογμασιν**[dogmasin (de dogmas)] :*en Decretos*.    
 #### La SEPTUAGINTA LXX GRIEGA asigna **νομος**(Ley)  a la TORAH y *la Reina Valera asigna Ley a la TORAH*, pero  TORAH no significa LEY sino INSTRUCCION.  
 La correspondencia sería: **Ma’ase ha-Torah** == ἔργα νόμου (erga nomou) == las obras de las Ley .  
  #### INTRODUCCION (en Wikipedia)
