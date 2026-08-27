@@ -36,7 +36,7 @@ Es importante que tengamos presente este pasaje *Efesios 2:15*.
 Así como encontramos: .  
 *la ley de los mandamientos expresados en ordenanzas,*.  
 De la misma manera  vamos a encontrar Gálatas 2:16 .  
-  16 sabiendo que el hombre **no es justificado por las obras de la ley**, sino por la fe de Jesucristo, nosotros también hemos creído en Jesucristo, **para ser justificados por la fe de Cristo y no por las obras de la ley, por cuanto por las obras de la ley nadie será justificado**.  
+ *sabiendo que el hombre* **no es justificado por las obras de la ley**, *sino por la fe de Jesucristo, nosotros también hemos creído en Jesucristo*, **para ser justificados por la fe de Cristo y no por las obras de la ley, por cuanto por las obras de la ley nadie será justificado**.  
 
   A nadie se le ocurriría tomar como Obra de la Ley o Decreto de la Ley a *La Creación*, *Noe*, etc,.  
   Aún siendo justificados por Cristo,a nadie se le ocurriría abolir : Amarás a Dios ,Amarás a tu prójimo, Honra a tu padre y a tu madre.   
