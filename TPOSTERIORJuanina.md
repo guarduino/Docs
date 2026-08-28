@@ -2,7 +2,7 @@
 
 ## **TEOLOGIA POSTERIOR**
 #### ENSAYO
-*Teología Joanina y Escatologia desde una perspectiva Dispensacionalista Clásica*.  
+###*Teología Joanina y Escatologia desde una perspectiva Dispensacionalista Clásica*.  
 **por Mónica Beatriz Basso** abril 2026
 
 ## INTRODUCCION
