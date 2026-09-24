@@ -1,7 +1,7 @@
 ## Sobre la modestia : De pudicitia _ de Tertuliano de Cartago
 **Sobre modestia es la obra de Tertuliano mas apegada al RIGORISMO MONTANISTA .Si bien Tertuliano es el que formula el CONCEPTO DE TRINIDAD, también es el que establece la diferencia entre los cristianos que siguen la disciplina eclesiástica ordinaria; los segundos son quienes poseen la comprensión espiritual asociada al Paráclito**.  
 Por otro lado admite una autoridad profética extendida mas allá de la apostólica :a Montano, Priscila, Maximila.
-La Iglesia de Cartago nunca condenó esa expresión si bien Tertuliano cuestionaba la laxitud del Obispado que no ejercia disciplina sobre el adulterio . 
+La Iglesia de Cartago nunca condenó esa expresión si bien Tertuliano cuestionaba la laxitud del Obispado que no ejercia disciplina debida  sobre el adulterio . 
 Tertuliano afirmaba que **la autoridad profética de Montano era considerada una manifestación del Paráclito prometido por Jesús**. 
 ### Tertuliano dice que él y los montanistas abandonaron a los llamados psychici precisamente por aceptar al Paráclito
 Y en "Sobre la modestia" ocurre algo todavía más significativo:“el mismo Paráclito en los nuevos profetas” es quien establece la disciplina sobre el perdón del adulterio.
