@@ -7,7 +7,7 @@ Tertuliano afirmaba que **la autoridad profética de Montano era considerada una
 Y en "Sobre la modestia" ocurre algo todavía más significativo:“el mismo Paráclito en los nuevos profetas” es quien establece la disciplina sobre el perdón del adulterio.
 Si bien la opinión de la Iglesia de principio del siglo 3 , habia sido crítica con Tertuliano, es sorprendente que al presente no se haya considerado que el en un momento fue extremo Montanista haya sido el mismo que formuló el concepto de Trinidad "Latina" que no se apegaba exactamente  al concepto de OUSIA delos concilios occidentales.
 
-## ## Sobre la modestia (De pudicitia) _ de Tertuliano de Cartago
+## Sobre la modestia (De pudicitia) _ de Tertuliano de Cartago
 
 ### Capítulo 1. Dios es tan misericordioso como virtuoso; por consiguiente, la misericordia no debe ser indiscriminada
 
