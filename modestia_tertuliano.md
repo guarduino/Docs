@@ -1,4 +1,9 @@
 ## Sobre la modestia _ de Tertuliano de Cartago
+**Sobre modestia es la obra de Tertuliano mas apegada al RIGORISMO MONTANISTA .Si bien Tertuliano es el que formula el CONCEPTO DE TRINIDAD, también es el que establece la diferencia entre los cristianos que siguen la disciplina eclesiástica ordinaria; los segundos son quienes poseen la comprensión espiritual asociada al Paráclito**.  
+Por otro lado admite una autoridad profética extendida mas allá de la apostólica a Montano, Priscila, Maximila.
+La Iglesia de Cartago nunca condenó esa expresión si bien Tertuliano cuestionaba la laxitud del Obispado 
+
+
 ### Capítulo 1. Dios es tan misericordioso como virtuoso; por consiguiente, la misericordia no debe ser indiscriminada
 
 La modestia, la flor de las buenas maneras, el honor de nuestros cuerpos, la gracia de los sexos, la integridad de la sangre, la garantía de nuestra raza,
