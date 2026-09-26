@@ -99,7 +99,7 @@ arrepentimiento. Habrá una condición que posiblemente pueda obtener el perdón
 condición que de ninguna manera puede obtenerlo —en el caso, es decir, de un pecado irremisible— . Y queda examinar especialmente, con respecto
 a la posición del adulterio y la fornicación, a qué clase de pecados deben asignarse.
 ### Capítulo 3. Una objeción prevista antes de que comience la discusión prometida
-anteriormente.
+
 Pero antes de hacer esto, haré un breve trabajo con una respuesta que nos llega desde el lado opuesto, en referencia a esa especie de arrepentimiento
 que acabamos de definir como sin perdón. “Porque, si,” dicen, “hay un arrepentimiento que carece de perdón, se sigue inmediatamente que tal
 arrepentimiento debe ser totalmente no practicado por ustedes. Porque nada debe hacerse en vano. Ahora bien, el arrepentimiento se practicará en
