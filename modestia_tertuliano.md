@@ -1,5 +1,5 @@
-## Sobre la modestia : De pudicitia _ de Tertuliano de Cartago
-**Sobre modestia es la obra de Tertuliano mas apegada al RIGORISMO MONTANISTA .Si bien Tertuliano es el que formula el CONCEPTO DE TRINIDAD, también es el que establece la diferencia entre los cristianos que siguen la disciplina eclesiástica ordinaria; los segundos son quienes poseen la comprensión espiritual asociada al Paráclito**.  
+## Sobre la modestia o el pudor: De pudicitia _ de Tertuliano de Cartago
+**Sobre modestia es la obra de Tertuliano mas apegada al RIGORiSMO MONTANiSTA .Si bien Tertuliano es el que formula el CONCePTO De TRiNIDAD, también es el que establece la diferencia entre los cristianos que siguen la disciplina eclesiástica ordinaria; los segundos son quienes poseen la comprensión espiritual asociada al Paráclito**.  
 Por otro lado admite una autoridad profética extendida mas allá de la apostólica :a Montano, Priscila, Maximila.
 La Iglesia de Cartago nunca condenó esa expresión si bien Tertuliano cuestionaba la laxitud del Obispado que no ejercia disciplina debida  sobre el adulterio . 
 Tertuliano afirmaba que **la autoridad profética de Montano era considerada una manifestación del Paráclito prometido por Jesús**. 
@@ -11,7 +11,7 @@ Si bien la opinión de la Iglesia de principio del siglo 3 , habia sido crítica
 
 ### Capítulo 1. Dios es tan misericordioso como virtuoso; por consiguiente, la misericordia no debe ser indiscriminada
 
-La modestia, la flor de las buenas maneras, el honor de nuestros cuerpos, la gracia de los sexos, la integridad de la sangre, la garantía de nuestra raza,
+La modestia o el pudor, la flor de las buenas maneras, el honor de nuestros cuerpos, la gracia de los sexos, la integridad de la sangre, la garantía de nuestra raza,
 la base de la santidad , el preindicación de toda buena disposición; aunque rara, difícil de perfeccionar y casi nunca conservada para siempre,
 perdurará en el mundo hasta cierto punto, si la naturaleza ha sentado sus bases preliminares, la disciplina la ha persuadido y el rigor censor ha frenado
 sus excesos; es decir, bajo la hipótesis de que toda buena cualidad mental es el resultado del nacimiento, de la educación o de la coerción externa.
@@ -27,9 +27,8 @@ la modestia cristiana el que se sacude hasta sus cimientos (la modestia cristian
 lavamiento de la regeneración;” su disciplina, a través del instrumento de la predicación; su rigor censor, a través de los juicios que cada Testamento
 exhibe; y está sujeto a una compulsión externa más constante, que surge de la comprensión o el deseo del fuego o reino eterno .
 
-En oposición a esto (la modestia), ¿no podría haber actuado como un disimulador? Oigo que incluso se ha promulgado un edicto, y uno perentorio
-además. El Pontífice Máximo —es decir, el obispo de obispos— emite un edicto: “«Perdono, a quienes hayan cumplido (los requisitos del)
-arrepentimiento, los pecados de adulterio y fornicación».” ¡Oh, edicto, en el que no se puede inscribir: « “¡Buena obra!»!” ¿Y dónde se exhibirá esta
+En oposición a esto (la modestia o pudor), ¿no podría haber actuado como un disimulador? Oigo que incluso se ha promulgado un edicto, y uno perentorio
+además. El Pontífice Máximo —es decir, obispo de los obispos ,**ironía sobre Roma**por la falta de respuesta moral, no se refiere a un papa) — emite un edicto: “«Perdono, a quienes hayan cumplido [los requisitos del] arrepentimiento, los pecados de adulterio y fornicación».” ¡Oh, edicto, en el que no se puede inscribir: « “¡Buena obra!»!” ¿Y dónde se exhibirá esta
 liberalidad? Supongo que en el mismo lugar, en las puertas de los apetitos sensuales, bajo los mismos títulos de los apetitos sensuales. Allí está el
 lugar para promulgar tal arrepentimiento, donde la delincuencia misma acechará. Allí está el lugar para leer el perdón, donde se entrará con la
 esperanza de obtenerlo. Pero es en la iglesia donde se lee este (edicto), y en la iglesia donde se pronuncia; ¡y (la iglesia) es virgen ! ¡Lejos, lejos de la
