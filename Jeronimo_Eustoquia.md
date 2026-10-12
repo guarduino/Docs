@@ -21,7 +21,7 @@ atrás(6) ni regresar a casa del campo, ni tener la túnica de Cristo, bajar del
 sois de vuestro padre el diablo, y los deseos de vuestro padre queréis cumplir».(8) Así se les dijo a los
 judíos. Y en otro lugar, «El que peca es del diablo».(9) Nacidos, en primera instancia, de tales padres
 somos naturalmente negros, e incluso cuando nos hemos arrepentido, mientras no hayamos alcanzado
-las alturas de la virtud, aún podemos decir: «Soy negra pero hermosa, oh hijas de Jerusalén».(10) Pero
+las alturas de la virtud, aún podemos decir: «Soy morena pero hermosa, oh hijas de Jerusalén».(10) Pero
 me dirás: «He dejado el hogar de mi infancia; he olvidado a mi padre, he nacido de nuevo en Cristo.
 ¿Qué recompensa recibo por esto?» El contexto muestra: «El rey deseará tu belleza». Este, pues, es
 el gran misterio. «Por esta causa el hombre dejará a su padre y a su madre y se unirá a su mujer, y los
