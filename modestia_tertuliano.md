@@ -3,7 +3,7 @@
 Por otro lado admite una autoridad profética extendida mas allá de la apostólica :a Montano, Priscila, Maximila.
 La Iglesia de Cartago nunca condenó esa expresión si bien Tertuliano cuestionaba la laxitud del Obispado que no ejercia disciplina debida  sobre el adulterio . 
 Tertuliano afirmaba que **la autoridad profética de Montano era considerada una manifestación del Paráclito prometido por Jesús**. 
-### Tertuliano dice que él y los montanistas abandonaron a los llamados psychico ( carnales que siguen los instintos del hombre) precisamente por aceptar al Paráclito
+### Tertuliano dice que él y los montanistas abandonaron a los llamados psychico ( carnales que siguen los instintos del hombre) precisamente para aceptar al Paráclito
 Y en "Sobre la modestia" ocurre algo todavía más significativo:“el mismo Paráclito en los nuevos profetas” es quien establece la disciplina sobre el perdón del adulterio.
 Si bien la opinión de la Iglesia de principio del siglo 3 , habia sido crítica con Tertuliano, es sorprendente que al presente no se haya considerado que el en un momento fue extremo Montanista haya sido el mismo que formuló el concepto de Trinidad "Latina" que no se apegaba exactamente  al concepto de OUSIA delos concilios occidentales.
 
