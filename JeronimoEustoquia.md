@@ -945,3 +945,4 @@ futuro, y oirás a tu Esposo decir: «Ponme como un parasol en tu corazón y com
 brazo». (1) Y entonces, fortalecido tanto en cuerpo como en mente, tú también gritarás: «Muchas
 aguas no pueden apagar el amor, ni los ríos pueden ahogarlo». (2)
 ##
+[fordham.edu](https://sourcebooks.web.fordham.edu/basis/jerome-letter22.asp?)
