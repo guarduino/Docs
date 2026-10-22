@@ -1,5 +1,4 @@
-Exposición del reverendo Dr. Richard Furman sobre la visión de los bautistas respecto a
-la población de color de los Estados Unidos al gobernador de Carolina del Sur.
+## Exposición del reverendo Dr. Richard Furman sobre la visión de los bautistas respecto a la población de color de los Estados Unidos al gobernador de Carolina del Sur.   
 Charleston, 28 de mayo de 1823.
 **ESTIMADO SEÑOR,**.  
 VARIOS de sus conciudadanos que han leído la comunicación del Reverendo Dr. FURMAN, en la que se
@@ -8,7 +7,7 @@ difusión podría ser beneficiosa y solicitan su autorización para su publicaci
 **B. ELLIOTT**.  
 
 Su Excelencia el Gobernador WILSON.   
-** MI ESTIMADO SEÑOR,**.  
+**MI ESTIMADO SEÑOR,**.  
 La solicitud que usted hace, en nombre propio y de varios de sus conciudadanos, se concede con el mayor
 gusto. No cabe duda de que tales doctrinas, provenientes de tal fuente, producirán los mejores resultados en
 nuestra población diversa y tenderán a hacer que nuestros sirvientes no solo estén más satisfechos con su
