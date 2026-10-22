@@ -8,7 +8,7 @@ difusión podría ser beneficiosa y solicitan su autorización para su publicaci
 **B. ELLIOTT**.  
 
 Su Excelencia el Gobernador WILSON.   
-** MI ESTIMADO SEÑOR,.  
+** MI ESTIMADO SEÑOR,**.  
 La solicitud que usted hace, en nombre propio y de varios de sus conciudadanos, se concede con el mayor
 gusto. No cabe duda de que tales doctrinas, provenientes de tal fuente, producirán los mejores resultados en
 nuestra población diversa y tenderán a hacer que nuestros sirvientes no solo estén más satisfechos con su
