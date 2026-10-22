@@ -18,7 +18,7 @@ trayectoria entre los religiosos de todas las denominaciones en todo nuestro Est
 respetuosa atención de todo lector.
 Reciba las seguridades de mi respeto y consideración.
 **JOHN L. WILSON**.  
-BENJAMIN ELLIOT, Esq. Charleston, 24 de diciembre de 1822.
+BENJAMIN ELLIOT, Esq. Charleston, 24 de diciembre de 1822.   
 **Señor**.  
 Cuando recientemente tuve el honor de entregar a Su Excelencia una Alegación, de la Convención Bautista
 en este Estado, solicitando que usted, como nuestro Magistrado Principal, designara un Día de Humillación
