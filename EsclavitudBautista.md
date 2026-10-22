@@ -36,8 +36,6 @@ misericordiosa, es un tema que ha ocupado la seria atención de la Convención; 
 que han formado al respecto, el error, al menos, no se debe a falta de consideración o de seria preocupación.
 No pueden ver el tema sino como uno de gran magnitud e íntimamente conectado con los intereses de todo el
 Estado. La interposición divina ha sido notoria; y nuestra obligación de estar agradecidos es inmensamente
-
-
 grande. Y, como los principios de la política más sabia y mejor llevan a las naciones, así como a los
 individuos, a considerar y reconocer el gobierno de la Deidad, a sentir su dependencia de ella y confianza en
 ella, a estar agradecidos por sus misericordias y a ser humillados bajo su vara de castigo; Así pues, no solo el
@@ -142,10 +140,10 @@ considerándola lícita y correcta, e insistieron en los deberes mutuos.
 Al demostrar que este tema es justificable mediante la autoridad de las Escrituras, también se demuestra su
 moralidad; pues la Ley Divina nunca aprueba acciones inmorales.
 
-La regla de oro cristiana, que consiste en tratar a los demás como quisiéramos que nos trataran a nosotros, se
+**La regla de oro cristiana, que consiste en tratar a los demás como quisiéramos que nos trataran a nosotros, se
 ha presentado como un argumento irrefutable contra la esclavitud. Sin embargo, esta regla jamás debe
 contraponerse al orden divino establecido; ni nuestros deseos se convierten en un criterio para nosotros, bajo
-esta regla, a menos que tengan debidamente en cuenta la justicia, la decencia y el bien común.
+esta regla, a menos que tengan debidamente en cuenta la justicia, la decencia y el bien común**.
 Un padre puede desear, con toda naturalidad, que su hijo obedezca sus órdenes. ¿Acaso debe, por tanto,
 obedecer las órdenes de su hijo? Un hombre podría sentirse complacido de ser exonerado de sus deudas por
 la generosidad de sus acreedores, o de que su vecino rico divida equitativamente su patrimonio con él. En
