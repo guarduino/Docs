@@ -1,4 +1,4 @@
-DOCUMENTO EXTENSO .¿ESCUCHALO!.  
+DOCUMENTO EXTENSO .¡EsCUCHALO!.  
 ## LA ESCLAVITUD SEGUN LOS BAUTISTAS DE 1823
 #### Exposición del reverendo Dr. Richard Furman sobre la visión de los bautistas respecto a la población de color de los Estados Unidos al gobernador de Carolina del Sur.   
 Charleston, 28 de mayo de 1823.
