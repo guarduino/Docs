@@ -1,13 +1,14 @@
 Exposición del reverendo Dr. Richard Furman sobre la visión de los bautistas respecto a
 la población de color de los Estados Unidos al gobernador de Carolina del Sur.
 Charleston, 28 de mayo de 1823.
-## ESTIMADO SEÑOR,
+**ESTIMADO SEÑOR,**.  
 VARIOS de sus conciudadanos que han leído la comunicación del Reverendo Dr. FURMAN, en la que se
 presenta la conveniencia de su recomendación de un Día de Acción de Gracias y Humillación, piensan que su
 difusión podría ser beneficiosa y solicitan su autorización para su publicación. Atentamente,
-## B. ELLIOTT.
-Su Excelencia el Gobernador WILSON.
-## MI ESTIMADO SEÑOR,
+**B. ELLIOTT**.  
+
+Su Excelencia el Gobernador WILSON.   
+** MI ESTIMADO SEÑOR,.  
 La solicitud que usted hace, en nombre propio y de varios de sus conciudadanos, se concede con el mayor
 gusto. No cabe duda de que tales doctrinas, provenientes de tal fuente, producirán los mejores resultados en
 nuestra población diversa y tenderán a hacer que nuestros sirvientes no solo estén más satisfechos con su
@@ -15,9 +16,8 @@ suerte, sino también más útiles para sus amos. La gran piedad y erudición de
 trayectoria entre los religiosos de todas las denominaciones en todo nuestro Estado, captarán de inmediato la
 respetuosa atención de todo lector.
 Reciba las seguridades de mi respeto y consideración.
-## JOHN L. WILSON.
-BENJAMIN ELLIOT, Esq.
-Charleston, 24 de diciembre de 1822.
+**JOHN L. WILSON**.  
+BENJAMIN ELLIOT, Esq. Charleston, 24 de diciembre de 1822.
 **Señor**.  
 Cuando recientemente tuve el honor de entregar a Su Excelencia una Alegación, de la Convención Bautista
 en este Estado, solicitando que usted, como nuestro Magistrado Principal, designara un Día de Humillación
