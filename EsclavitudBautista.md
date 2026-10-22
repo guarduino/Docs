@@ -1,4 +1,5 @@
-### Exposición del reverendo Dr. Richard Furman sobre la visión de los bautistas respecto a la población de color de los Estados Unidos al gobernador de Carolina del Sur.   
+## LA ESCLAVITUD SEGUB LOS BAUTISTAS DE 1823
+#### Exposición del reverendo Dr. Richard Furman sobre la visión de los bautistas respecto a la población de color de los Estados Unidos al gobernador de Carolina del Sur.   
 Charleston, 28 de mayo de 1823.
 **ESTIMADO SEÑOR,**.  
 VARIOS de sus conciudadanos que han leído la comunicación del Reverendo Dr. FURMAN, en la que se
