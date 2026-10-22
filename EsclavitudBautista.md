@@ -1,7 +1,7 @@
 ## LA ESCLAVITUD SEGUB LOS BAUTISTAS DE 1823
 #### Exposición del reverendo Dr. Richard Furman sobre la visión de los bautistas respecto a la población de color de los Estados Unidos al gobernador de Carolina del Sur.   
 Charleston, 28 de mayo de 1823.
-**ESTIMADO SEÑOR,**.  
+**ESTIMADO SEÑOR,**.  https://www.sbc.net/resource-library/resolutions/resolution-on-racial-reconciliation-on-the-150th-anniversary-of-the-southern-baptist-convention/
 VARIOS de sus conciudadanos que han leído la comunicación del Reverendo Dr. FURMAN, en la que se
 presenta la conveniencia de su recomendación de un Día de Acción de Gracias y Humillación, piensan que su
 difusión podría ser beneficiosa y solicitan su autorización para su publicación. Atentamente,
@@ -38,7 +38,7 @@ que han formado al respecto, el error, al menos, no se debe a falta de considera
 No pueden ver el tema sino como uno de gran magnitud e íntimamente conectado con los intereses de todo el
 Estado. La interposición divina ha sido notoria; y nuestra obligación de estar agradecidos es inmensamente
 grande. Y, como los principios de la política más sabia y mejor llevan a las naciones, así como a los
-individuos, a considerar y reconocer el gobierno de la Deidad, a sentir su dependencia de ella y confianza en
+individuos, a considerar y reconocer el gobierno de la Deidad, a sentir su dependencia de ella y confianza enhttps://www.sbc.net/resource-library/resolutions/resolution-on-racial-reconciliation-on-the-150th-anniversary-of-the-southern-baptist-convention/https://www.sbc.net/resource-library/resolutions/resolution-on-racial-reconciliation-on-the-150th-anniversary-of-the-southern-baptist-convention/
 ella, a estar agradecidos por sus misericordias y a ser humillados bajo su vara de castigo; Así pues, no solo el
 deber moral y religioso, sino también el respeto por el bien común, parecen exigirnos, en esta ocasión, la
 humildad y la acción de gracias que propone la Convención en su petición. Porque la conciencia del
@@ -62,7 +62,7 @@ ilustrados y religiosos entre ellos, de los cuales parece haber muchos, están d
 acciones de gracias, en consideración a sus propios intereses. Por lo tanto, si se teme que se le dé una
 importancia indebida al tema, al convertirlo en motivo de acción de gracias pública; que esto induzca a los
 intrigantes y malvados a inferir nuestro temor y sentimiento de debilidad a partir de ese hecho, y así los
-induzca a urdir algún otro plan malicioso: ¿Acaso nuestro silencio y la omisión de un importante deber
+induzca a urdir algún otro plan malicioso: ¿Acaso nuestro silencio y la omisión de un importante deberhttps://www.sbc.net/resource-library/resolutions/resolution-on-racial-reconciliation-on-the-150th-anniversary-of-the-southern-baptist-convention/
 religioso, en estas circunstancias, no se interpretarían, al menos, de manera igual de desfavorable, y con más
 razón?
 Pero la Convención está convencida de que la publicidad, más que el secreto, es la política adecuada en esta
@@ -92,7 +92,7 @@ sobre las cabezas de inocentes y culpables una ruina indistinguible.
 
 Sobre la legalidad de la esclavitud, desde una perspectiva moral y religiosa, la Convención considera su
 deber exponer sus sentimientos en esta ocasión ante Su Excelencia, pues consideran que su deber para con
-Dios, la paz del Estado, la satisfacción de conciencias escrupulosas y el bienestar de los propios esclavos
+Dios, la paz del Estado, la satisfacción de conciencias escrupulosas y el bienestar de los propios esclavoshttps://www.sbc.net/resource-library/resolutions/resolution-on-racial-reconciliation-on-the-150th-anniversary-of-the-southern-baptist-convention/
 están íntimamente ligados a una correcta interpretación del tema. Esto se debe, más aún, a que ciertos autores
 sobre política, moral y religión, algunos de ellos de gran prestigio, han promovido posturas e inculcado
 sentimientos muy contrarios al principio y la práctica de la esclavitud; y algunos han promovido estos
@@ -362,3 +362,9 @@ su muy atento y humilde servidor,
 ## RICHARD FURMAN,
 Presidente de la Convención Estatal Bautista.
 Su Excelencia el GOBERNADOR WILSON.
+
+
+##reconciliación racial
+(Resolución sobre la reconciliación racial en el 150 aniversario de la Convención Bautista del Sur.)[https://www.sbc.net/resource-library/resolutions/resolution-on-racial-reconciliation-on-the-150th-anniversary-of-the-southern-baptist-convention/]
+
+
